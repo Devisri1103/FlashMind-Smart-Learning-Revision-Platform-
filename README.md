@@ -7,7 +7,7 @@
 - **P. Vineetha** - [GitHub](https://github.com/Vineetha-17)
 - **Y. Suma Harshitha** - [GitHub](https://github.com/Suma-1417)
 - **K. Devisri** - [GitHub](https://github.com/Devisri1103)
-- **SK. Shameera** - [GitHub](https://github.com/23501a4455-alt)
+- **Sk. Shameera** - [GitHub](https://github.com/23501a4455-alt)
 ---
 
 # Project Description
